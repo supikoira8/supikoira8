@@ -10,7 +10,7 @@ The breadline stays strong ...
 <br>
 ⋆｡°✩
 <br>
-I don't mind if people hide/cover up my pony! Feel free to sit with me though :D 
+I don't mind if people hide/cover up my pony! Feel free to sit with me as well :D 
 <br>
 I'm mostly offtab so please leave a whisper if you want my attention,,
 <br>
