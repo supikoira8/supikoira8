@@ -17,7 +17,7 @@ I'm mostly offtab so please leave a whisper if you want my attention,,
 ⋆｡°✩
 <br>
 
-The ponies I use the most are *''Seal [FIN/ENG]'', ''Lazarus'' or ''Major Tom - OC''*
+The ponies I use the most vary a lot... My Github should be tagged on them!
 <br>
 They most likely have my github tagged on them..
 <br>
