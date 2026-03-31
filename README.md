@@ -7,7 +7,6 @@ Seal - He/they - 18yo - Finnish - Crazy art and plant guy
 *Like my profile says, I mainly hang around the bakery, spawn or just wander around the map ^^*
 <br>
 
-<br>
 ⋆｡°✩
 <br>
 I don't mind if people hide/cover up my pony! Feel free to sit with me as well :D 
