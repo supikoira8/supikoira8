@@ -6,7 +6,7 @@ Seal - He/they - 18yo - Finnish - Crazy art and plant guy
 
 *Like my profile says, I mainly hang around the bakery, spawn or just wander around the map ^^*
 <br>
-The breadline stays strong ...
+
 <br>
 ⋆｡°✩
 <br>
